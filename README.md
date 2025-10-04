@@ -1,0 +1,1 @@
+# 7trust-infographic
